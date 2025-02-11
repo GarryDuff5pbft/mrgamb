@@ -1,4 +1,4 @@
 **MrGamb** - **Mrgamb Giriş** - Mrgamb Güncel Adres ve Bonuslar
 MrGamb, oyunculara güvenli ve eğlenceli bir casino deneyimi sunan bir platformdur. Geniş oyun yelpazesi, kullanıcı dostu tasarımı ve 7/24 erişim imkanıyla her zaman yanınızda. Keyifli anlar ve büyük kazançlar için doğru adres.
 
-[Güncel Giriş İçin Tıklayınız](https://www.haber.com/)
+[Güncel Giriş İçin Tıklayınız](https://sites.google.com/view/gitvegor/ana-sayfa)
